@@ -1,1 +1,3 @@
 # Aurica
+bla bla bla i feel right now like the pig in the farmacy..i'm surfing here but for what is all this i have no idea))) 
+p.s. i am not a robot.....
